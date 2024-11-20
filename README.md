@@ -17,22 +17,22 @@ ___
 
 #### Mes objectifs en tant que **super** développeur:
 
->Devenir un bon développeur **complet** qui sait répondre à la demande du **super**client. Pouvoir être **super**créatif et être heureux dans mon **super**métier.
+>Devenir un bon développeur **complet** qui sait répondre à la demande du **super** client. Pouvoir être **super** créatif et être heureux dans mon **super** métier.
 
 
 #### Mes peurs:
 
->Peur de pas réussir a m'intégrer plus tard dans le **super**monde du travail et de pas m'entendre avec mes futurs **super**collègues.
+>Peur de pas réussir a m'intégrer plus tard dans le **super** monde du travail et de pas m'entendre avec mes futurs **super** collègues.
 
 
-#### Ce que j'attend le **super**plus:
+#### Ce que j'attend le **super** plus:
 
 > De devenir un développeur **accompli**.
 
-#### Les 3 **super**choses qui sont le plus importante pour **super**moi dans le travail de groupe sont: 
->- Le **super**respect 
->- L'écoute du **super**autre
->- La **super**empathie.
+#### Les 3 **super** choses qui sont le plus importante pour **super** moi dans le travail de groupe sont: 
+>- Le **super** respect 
+>- L'écoute du **super** autre
+>- La **super** empathie.
 
 ___
 
